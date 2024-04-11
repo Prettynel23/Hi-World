@@ -1,1 +1,1 @@
-# Hi-World
+# Hi-World Professional Statement : Thrilled to dive deep into my role as a cybersecurity crime analyst, I find incredible joy and fulfillment in uncovering solutions that significantly benefit both an organization and its vibrant community. Being an African American millennial in this field, I'm passionately committed to maintaining a strong security stance—it's key to protecting sensitive information and reducing risks. This mission resonates with me deeply, fueling my dedication to making a positive, lasting impact.
